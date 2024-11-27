@@ -1,0 +1,1 @@
+**In a world where every twist and turn could mean life or death, U Turn Safety emerges as the beacon of hope for drivers navigating treacherous mountainous terrains. Powered by cutting-edge IoT technology, this revolutionary project is set to transform road safety as we know it.**
